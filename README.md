@@ -1,1 +1,0 @@
-# Mohon-maaf-lahir-batin-
